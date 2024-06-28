@@ -1,2 +1,0 @@
-# kaynercueva.github.io
- Portafolio
